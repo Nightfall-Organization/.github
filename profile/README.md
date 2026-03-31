@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there!
 
 We are Nightfall Studios! the silly goobers who
 make sily games for yall to enjoy and we own a
@@ -23,9 +23,12 @@ to a silly goobis organization!
 
 # what are yall's contacts???
 
-owner - @insanityforeternity
-co owner - @xenyhen_awan
-artist / ideas / amazing person - @x.pwchu1xxxx.aiko
+owner - @insanityforeternity,
+
+co owner - @xenyhen_awan,
+
+artist / ideas / amazing person - @x.pwchu1xxxx.aiko,
+
 uhhh emo guy who is in this group - @sunky0947
 
 # is there anything else???
