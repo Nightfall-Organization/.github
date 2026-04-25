@@ -6,9 +6,9 @@ upcoming platform u all to enjoy!
 
 ## cool, so who are the members???
 
-Keoni - Owner / Founder
-Xenyhen - Co Founder
-Zero Wife - Main Artist and Ideas!
+Keoni - Owner / Founder,
+Xenyhen - Co Founder,
+Zero Wife - Main Artist and Ideas! and
 Aaron (Delilah Husband) - just be himself ig
 
 # great great, so how did yall form?
